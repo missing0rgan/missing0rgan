@@ -1,3 +1,10 @@
+![DA237E2B-F82B-4CAD-A0C0-FB8231B233C8](https://github.com/user-attachments/assets/8273ae97-b06c-4dfe-ae1d-9e196cf700ee)
+
+(by https://mipexch.tumblr.com)
+
+,,
+
+
 ╰┈ .. greetings .. im one and only (missing0rgan/missing3ntrails) .. call me clevet .
 
 .. any appropriate nicknames are okay, as long as im fine w/ it .
