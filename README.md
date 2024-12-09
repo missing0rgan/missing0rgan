@@ -1,6 +1,5 @@
-![DA237E2B-F82B-4CAD-A0C0-FB8231B233C8](https://github.com/user-attachments/assets/8273ae97-b06c-4dfe-ae1d-9e196cf700ee)
+![4056D8EC-743F-4506-BF1C-37C7CE31EEBC_4_5005_c](https://github.com/user-attachments/assets/28d63e0f-9e3d-4f8e-b49f-a8205b01640d)
 
-(by https://mipexch.tumblr.com)
 
 ,,
 
