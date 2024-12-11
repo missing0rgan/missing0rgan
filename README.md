@@ -27,7 +27,7 @@ write at https://missing0rgan.atabook.org if you want to question!
 
 ╰┈ * .. as i have mentioned like who knows how much already .. !! do NOT copy or take inspo/inspiration .. copying one or more of my skins won't be tolerated, i wont take it lightly otherwise .. PLEASE ASK if you want to take inspiration from my skins .. but i will likely say no .
 
-ㅤ* .. c+h (cuddle and hide) is fine by me, please do without asking i really don't mind !! im very friendly i dont bite !! c :
+* .. c+h (cuddle and hide) is fine by me, please do without asking i really don't mind !! im very friendly i dont bite !! c :
 
 * .. this is very foremost important .. don't stalk or possibly stare at me while near beside me, im paranoid whenever anyone does that .. if you don't have a social account on your profile, i might assume you're stalking or wanting something from me !!
 
