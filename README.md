@@ -1,7 +1,12 @@
 ![D57E3703-F9A9-4CF8-9B65-D02042D8FD81_4_5005_c](https://github.com/user-attachments/assets/0e610f6c-923f-4b34-a9c7-54c6972bc67b)
 
+pfp by @mreomys from tiktok
+
+write at https://missing0rgan.atabook.org if you want to question!
+
 ,,
 
+✦
 
 ╰┈ .. greetings .. im one and only (missing0rgan/missing3ntrails) .. call me clevet .
 
@@ -9,9 +14,11 @@
 
 ╰ pronouns are he/him, but preferably they/them ..
 
-.. transgender (ftm), demi-boy, omnisexual, aromantic .. im not up to get taken into relationships .
+.. transgender, demi-boy, omnisexual, aromantic .. (im not up to get taken into relationships) .
 
 ╰┈ .. current main interests today is Dandy's World, Inanimate Insanity and Korean Fried Chicken (Object show) : D
+
+.. huge C'link Dandicus Dancifer and Sprout (Seedly)
 
 ,,
 
