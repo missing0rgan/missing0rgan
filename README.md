@@ -11,7 +11,7 @@
 
 .. transgender (ftm), demi-boy, omnisexual, aromantic .. im not up to get taken into relationships .
 
-╰┈ .. current main interests today is Inanimate Insanity and Dandy's World : D
+╰┈ .. current main interests today is Dandy's World, Inanimate Insanity and Korean Fried Chicken (Object show) : D
 
 ,,
 
@@ -40,9 +40,9 @@
 * .. dry, awkward or toxic people, specially who are MEAN for no apparent reason .
 
 
-* .. murder drones: "panic AU" .. needless to mention more about it? you guys are irritatingly disgusting .. know that .
+* .. murder drones: "panic AU" .
 
-.. there are fandoms i dislike and despise, but would not bother
+.. there are fandoms i dislike, but would not bother
 
 ''
 
