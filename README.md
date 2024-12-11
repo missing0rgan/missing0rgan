@@ -8,7 +8,7 @@ write at https://missing0rgan.atabook.org if you want to question!
 
 ✦
 
-╰┈ .. greetings .. im one and only (missing0rgan/missing3ntrails) .. call me clevet .
+╰┈ .. greetings .. im one and only (missing0rgan/missing3ntrails) .. mainly, call me clevet .. other nicknames would be Dandy or smth c :"
 
 .. any appropriate nicknames are okay, as long as im fine w/ it .
 
@@ -25,7 +25,7 @@ write at https://missing0rgan.atabook.org if you want to question!
 
 !! FROM PONY TOWN, PLEASE READ BEFORE INTERACTING !! (you can still interact but other than that, please read)
 
-╰┈ * .. as i have mentioned like who knows how much already .. !! do NOT copy or take inspo/inspiration .. copying one or more of my skins won't be tolerated, i wont take it lightly otherwise .. PLEASE ASK if you want to take inspiration from my skins .. but i will likely say no .
+* .. as i have mentioned like who knows how much already .. !! do NOT copy or take inspo/inspiration .. copying one or more of my skins won't be tolerated, i wont take it lightly otherwise .. PLEASE ASK if you want to take inspiration from my skins .. but i will likely say no .
 
 * .. c+h (cuddle and hide) is fine by me, please do without asking i really don't mind !! im very friendly i dont bite !! c :
 
@@ -40,9 +40,9 @@ write at https://missing0rgan.atabook.org if you want to question!
 
 ╰┈ * .. do not interact criterias .. !!
 
-ㅤ* .. homophobic, transphobic, rasist, ableist, pedophile, zoophile, necrophilla .. etc, any problematic traits, whatever don't interact .
+* .. homophobic, transphobic, rasist, ableist, pedophile, zoophile, necrophilla .. etc, any problematic traits, whatever don't interact .
 
-ㅤ* .. proshipper/darkshippers .. do i have anything to say?
+* .. proshipper/darkshippers .. do i have anything to say?
 
 * .. dry, awkward or toxic people, specially who are MEAN for no apparent reason .
 
@@ -50,8 +50,6 @@ write at https://missing0rgan.atabook.org if you want to question!
 * .. murder drones: "panic AU" .
 
 .. there are fandoms i dislike, but would not bother
-
-''
 
 ''
 
