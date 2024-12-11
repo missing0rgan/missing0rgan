@@ -1,5 +1,4 @@
-![4056D8EC-743F-4506-BF1C-37C7CE31EEBC_4_5005_c](https://github.com/user-attachments/assets/28d63e0f-9e3d-4f8e-b49f-a8205b01640d)
-
+![f589632cb22ac482a0c2c6c969e22358](https://github.com/user-attachments/assets/d1e97d68-ec22-4799-9393-a02a104f3669)
 
 ,,
 
