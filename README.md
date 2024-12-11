@@ -18,7 +18,7 @@ write at https://missing0rgan.atabook.org if you want to question!
 
 ╰┈ .. current main interests today is Dandy's World, Inanimate Insanity and Korean Fried Chicken (Object show) : D
 
-.. huge C'link Dandicus Dancifer and Sprout (Seedly)
+.. huge C'link Dandicus Dancifer, Sprout (Seedly)
 
 ,,
 
