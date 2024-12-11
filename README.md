@@ -4,9 +4,9 @@ pfp by @mreomys from tiktok
 
 write at https://missing0rgan.atabook.org if you want to question!
 
-,,
+. . .
 
-✦
+'' 𝙸 𝚕𝚘𝚘𝚔 𝚏𝚘𝚛𝚠𝚊𝚛𝚍 𝚝𝚘 𝚜𝚎𝚎𝚒𝚗𝚐 𝚢𝚘𝚞 𝚊𝚐𝚊𝚒𝚗! '' ༉ ‧ ₊ ˚.
 
 ╰┈ .. greetings .. im one and only (missing0rgan/missing3ntrails) .. mainly, call me clevet .. other nicknames would be Dandy or smth c :"
 
