@@ -70,5 +70,3 @@ murder drones, gravity falls, adventure time, bee and puppycat, hilda, etc ..
 ╰┈ .. music interests .. cavetown, alex g, sign crushes motorist, mitski, crystal castles, sushi soucy, august greenwood, yaelokre, madilyn mei, the crane wives, chloe moriondo, frankie cosmos, girl in red, everybody's worried about owen, the scary jokes, will wood, I DONT KNOW HOW BUT THEY FOUND ME, kikuo, maretu, mindless self indulgence
 
 !! ((STILL IN PROGRESS)) !!
-
-![9843c02ab20e435c1f015400b7e2d5be](https://github.com/user-attachments/assets/d2224b81-c1bd-43df-9b0a-0d80c0bf3cd2)
