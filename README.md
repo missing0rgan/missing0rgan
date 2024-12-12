@@ -1,5 +1,5 @@
 ![f22e4d70ba2268d61b41a680536cbd9f](https://github.com/user-attachments/assets/8e6cf7cb-5435-495d-9ab3-5f71875205de)
-
+![image](https://github.com/user-attachments/assets/22908c71-388d-46b9-8340-b4bdf6054329)
 ![image](https://github.com/user-attachments/assets/9814ae81-0b3a-409f-b2a8-7a99d3caf0e7)
 
 pfp by @mreomys from tiktok
@@ -55,7 +55,7 @@ write at https://missing0rgan.atabook.org if you want to question!
 
 .. there are fandoms i dislike, but would not bother
 
-''
+,,
 
 ╰┈ .. interests that I know of .. object shows ..
 
