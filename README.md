@@ -6,6 +6,8 @@ pfp by @mreomys from tiktok
 
 write at https://missing0rgan.atabook.org if you want to question!
 
+consider following me c : /nf
+
 . . .
 
 '' 𝙸 𝚕𝚘𝚘𝚔 𝚏𝚘𝚛𝚠𝚊𝚛𝚍 𝚝𝚘 𝚜𝚎𝚎𝚒𝚗𝚐 𝚢𝚘𝚞 𝚊𝚐𝚊𝚒𝚗! '' ༉ ‧ ₊ ˚.
@@ -29,7 +31,11 @@ write at https://missing0rgan.atabook.org if you want to question!
 
 !! FROM PONY TOWN, PLEASE READ BEFORE INTERACTING !! (you can still interact but other than that, please read)
 
-* .. as i have mentioned like who knows how much already .. !! do NOT copy or take inspo/inspiration .. copying one or more of my skins won't be tolerated, i wont take it lightly otherwise .. PLEASE ASK if you want to take inspiration from my skins .. but i will likely say no .
+* .. as i have mentioned like who knows how much already .. !! do NOT copy or take inspo/inspiration .. copying one or more of my skins won't be tolerated, i wont take it lightly otherwise ..
+
+(if i caught you copying my skin entirely without permission, you'll be screenshotted by me! and put in the "shame photos" yay.)
+
+PLEASE ASK if you want to take inspiration from my skins .. but i will likely say no .
 
 * .. c+h (cuddle and hide) is fine by me, please do without asking i really don't mind !! im very friendly i dont bite !! c :
 
