@@ -1,4 +1,6 @@
-![D57E3703-F9A9-4CF8-9B65-D02042D8FD81_4_5005_c](https://github.com/user-attachments/assets/0e610f6c-923f-4b34-a9c7-54c6972bc67b)
+![f22e4d70ba2268d61b41a680536cbd9f](https://github.com/user-attachments/assets/8e6cf7cb-5435-495d-9ab3-5f71875205de)
+
+![image](https://github.com/user-attachments/assets/9814ae81-0b3a-409f-b2a8-7a99d3caf0e7)
 
 pfp by @mreomys from tiktok
 
@@ -68,3 +70,5 @@ murder drones, gravity falls, adventure time, bee and puppycat, hilda, etc ..
 ╰┈ .. music interests .. cavetown, alex g, sign crushes motorist, mitski, crystal castles, sushi soucy, august greenwood, yaelokre, madilyn mei, the crane wives, chloe moriondo, frankie cosmos, girl in red, everybody's worried about owen, the scary jokes, will wood, I DONT KNOW HOW BUT THEY FOUND ME, kikuo, maretu, mindless self indulgence
 
 !! ((STILL IN PROGRESS)) !!
+
+![9843c02ab20e435c1f015400b7e2d5be](https://github.com/user-attachments/assets/d2224b81-c1bd-43df-9b0a-0d80c0bf3cd2)
