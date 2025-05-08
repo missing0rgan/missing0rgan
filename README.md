@@ -2,29 +2,27 @@
 ![image](https://github.com/user-attachments/assets/22908c71-388d-46b9-8340-b4bdf6054329)
 ![image](https://github.com/user-attachments/assets/9814ae81-0b3a-409f-b2a8-7a99d3caf0e7)
 
-pfp by @mreomys from tiktok
-
 write at https://missing0rgan.atabook.org if you want to question!
 
 consider following me c : /nf
 
 . . .
 
-'' 𝙸 𝚕𝚘𝚘𝚔 𝚏𝚘𝚛𝚠𝚊𝚛𝚍 𝚝𝚘 𝚜𝚎𝚎𝚒𝚗𝚐 𝚢𝚘𝚞 𝚊𝚐𝚊𝚒𝚗! '' ༉ ‧ ₊ ˚.
+'' Shadows die twice. '' ༉ ‧ ₊ ˚.
 
 . . .
 
-╰┈ .. greetings .. im one and only (missing0rgan/missing3ntrails) .. mainly, call me clevet .. other nicknames would be Dandy or smth c :"
+╰┈ .. greetings .. im one and only (decayingcemetery) .. mainly, call me martyr .. other nicknames would be two time or smth c :"
 
 .. any appropriate nicknames are okay, as long as im fine w/ it .
 
-╰ pronouns are he/him, but preferably they/them ..
+╰ pronouns are peferribly he/him and they/them ..
 
-.. transgender, demi-boy, omnisexual, aromantic .. (im not up to get taken into relationships) .
+.. transgender, demi-boy, omnisexual(??), aromantic .. (im not up to get taken into relationships) .
 
-╰┈ .. current main interests today is Dandy's World, Inanimate Insanity and Korean Fried Chicken (Object show) : D
+╰┈ .. current main interests today is FORSAKEN
 
-.. huge C'link Dandy (Dandicus Dancifer), Sprout (Seedly)
+.. huge C'link noob, elliot and two time
 
 ,,
 
@@ -37,7 +35,7 @@ consider following me c : /nf
 
 PLEASE ASK if you want to take inspiration from my skins .. but i will likely say no .
 
-* .. c+h (cuddle and hide) is fine by me, please do without asking i really don't mind !! im very friendly i dont bite !! c :
+* .. c+h (cuddle and hide) is fine by me, please do even asking i really don't mind !! im very friendly i dont bite !! c :
 
 * .. this is very foremost important .. don't stalk or possibly stare at me while near beside me, im paranoid whenever anyone does that .. if you don't have a social account on your profile, i might assume you're stalking or wanting something from me !!
 
@@ -67,7 +65,7 @@ PLEASE ASK if you want to take inspiration from my skins .. but i will likely sa
 
 married in red, dead plate, cold front, etc .. (studio investigate)
 
-roblox classic, roblox myths, jims computer, guts and blackpowder, TR:UD (The Robloxia: Until Dawn), ocean terror, bloopermarket, etc ..
+roblox classic, roblox myths, jims computer, guts and blackpowder, forsaken, ocean terror, bloopermarket, etc ..
 
 murder drones, gravity falls, adventure time, bee and puppycat, hilda, etc ..
 
